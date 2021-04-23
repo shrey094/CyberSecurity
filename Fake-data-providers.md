@@ -1,0 +1,5 @@
+- [Fake Doctors Note & Excuses](https://www.bestfakedoctorsnotes.net/)
+- [US Address Generator Fake Address, Random Address Generator ](https://fakeaddressgenerator.com/World_Address/get_us_address/city/Detroit)
+- [India Fake Name | Address | Credit Card | Generator ](https://fake-it.ws/in/)
+- [FakeMail | Disposable Temp Mail ](https://www.fakemail.net/)
+- [US Address Generator Fake Address](https://fakeaddressgenerator.com/World_Address/get_us_address/city/Detroit)
